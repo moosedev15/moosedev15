@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @moosedev15
+- 👋 Hi, I’m Stupid
 - 👀 I’m interested in technology (obviously)
 - 🌱 I’m currently learning how to not go insane from being grounded (He's still grounded and will be till may lol and i wanna make him hate me so im doing this -SomeTechyGuy) 
 - 📫 How to reach me ... 
